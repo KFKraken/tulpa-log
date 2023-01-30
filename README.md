@@ -2,7 +2,7 @@
 
 ## Week 1
 
-[Test link](#Day 4)
+[Test link](#day-4)
 
 
 
