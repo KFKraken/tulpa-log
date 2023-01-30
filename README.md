@@ -1,8 +1,10 @@
 # tulpa-log
 
+- [Week 1](#week-1)
+
 ## Week 1
 
-[Test link](#day-4)
+
 
 
 
