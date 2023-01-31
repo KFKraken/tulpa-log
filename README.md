@@ -2,6 +2,7 @@
 
 - ### [Week 1](#week-1)
     - #### [Day 5](#day-5)
+    - ####[Day 6](#day-6)
 
 ## Week 1
 
@@ -20,3 +21,9 @@ When I have been narrating to her sometimes after a question or something somewh
 One problem that I have had a little is that I have always talked to myself having full on conversations and living out random hypotheticals in my head. I feel like because of this sometimes my narrating that is basically what I do anyway just to myself is very easily distracted back to the point of focus at where I normally talk to "myself". I quote the words myself because these last few days have opened my perspective to where I realise that thing I call myself isn't really myself, because I can't be the "myself" in this situation, as it is the one talking, however the focus point is elsewhere. At a specific point in my mind, it almost feels like I can feel the spot in my brain.
 
 Maybe that elsewhere is what we call the ego, which is why in one guide on tulpa creation I read a tulpa is compared to one's ego perhaps. I guess you can take it very far and look at in in depth, I believe  many people have, and I believe tulpas may be an interesting analogue to derive perspective on what we call and define oneself.
+
+### Day 6
+
+I haven't done much with my tulpa today I have just been busy with work and stuff but I feel like thisisnt going to much different most days so I am going to have to figure something out and allocate time each day to it, I am going to try do some forcing tonight. 
+
+One thing I have been thinking about though is I have seen in guides written almost as "do visualisation then imposition then bla bla blah", but I'm not convinced this is the best way of going about things, in a game for example, an rpg game, you don't generally max out one skill then the next. You build one up skill a little which helps you with another and then another and so on, and this also applies to life, snd I think it also applies to tulpas.
