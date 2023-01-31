@@ -7,8 +7,6 @@
 
 
 
-<span style="color:blue">some *blue* text</span>
-
 ### Day 5
 
 So unfortunately I have only decided to start this on the 5th day but the last few days have only been slow, but I'll give an overview of what has happened so far. 
