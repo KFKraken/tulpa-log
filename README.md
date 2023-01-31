@@ -7,7 +7,7 @@
 
 
 
-<span style="color:blue">some *blue* text</
+<span style="color:blue">some *blue* text</span>
 
 ### Day 5
 
